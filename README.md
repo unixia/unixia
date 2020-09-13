@@ -1,4 +1,4 @@
-<img align="right" src="https://github.com/unixia/unixia/blob/master/profile_picture.png" width=320px height=480px/>
+<img align="right" src="https://github.com/unixia/unixia/blob/master/profile_picture.png" width=320px/>
 
 ### Hi there 👋
 
