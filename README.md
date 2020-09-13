@@ -1,3 +1,5 @@
+<img align="right" src="https://github.com/sirkaushalkumar/sirkaushalkumar/blob/master/profile_picture.png" width=400px height=600px/>
+
 ### Hi there 👋
 
 #### I am writing to inform that I am a Mechanical Engineer and a Mathematics Enthusiast. I am also working as a Support Analyst for an Hollywood Studio at Tata Consultancy Services from Mumbai. I am also learning Node.js, Angular and React along with PostgreSQL. 
