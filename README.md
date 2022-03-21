@@ -6,7 +6,7 @@
 
 <!-- #### I am in love with the woman on the planet that I will never see again. She is the most beautiful woman on this planet. I am man of mountains and will open a coffee shop with background speakers playing soothing sound and free internet.  -->
 
-#### I believe that education can eradicate all the problems from the world. I would be more than happy to work as a volunteer to make any contribution in this field. In case you need any help. You can always reach me out via mail/wire/ping/hangouts at sirkaushalkumar@gmail.com or message/text/call/whatsapp on +918005256763. I will be more than happy to help.
+#### I believe that education can eradicate all the problems from the world. I would be more than happy to work as a volunteer to make any contribution in this field. In case you need any help. You can always reach me out via mail/wire/ping/hangouts at sirkaushalkumar@gmail.com<!--  or message/text/call/whatsapp on +918005256763 -->. I will be more than happy to help.
 
 <!-- #### I cannot earn money from any other additional sources as I am already employed. Also I am not looking for any hirings as if now, hence request one to not email/text anything reagrding any job opportunities. *But,* Education is a very important cause and am ready and looking forward to help and volunteer by any means possible. -->
 
